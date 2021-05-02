@@ -1,6 +1,6 @@
 # Change Manifesto
 
-Many people in our world today are unhappy with their live’s, their appearance, their level of success, and how the rest of the world is living. Changing patterns and perspectives is possible and necessary if one is to have a life worth living. 
+Many people in our world today are unhappy with their choices, their appearance, their level of success, and how the rest of the world is living. Changing patterns and perspectives is possible and necessary if one is to have a life worth living.
 
 ## How to change patterns, perspective, and behaviors. 
 
